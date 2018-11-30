@@ -1,1 +1,0 @@
-# daribaev.github.io
